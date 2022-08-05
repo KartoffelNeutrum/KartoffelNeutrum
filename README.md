@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KartoffelNeutrum
+- 👀 I’m interested in minecraft hacking
+- 🌱 I’m currently learning java
+- 📫 How to reach me: KartoffelNeutrum#4585
