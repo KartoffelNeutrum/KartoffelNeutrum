@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @KartoffelNeutrum
-- 👀 I’m interested in minecraft cheating
-- 🌱 I’m currently learning java
-- 📫 How to reach me: KartoffelNeutrum#4585
+- 👀 I’m interested exploiting
+- 🌱 I’m currently learning java. but mostly html cuz Im to dumb for java
+- 📫 How to reach me: Dc: KartoffelNeutrum
