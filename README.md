@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @KartoffelNeutrum
 - 👀 I’m interested exploiting
-- 🌱 I’m currently learning java. but mostly html cuz Im to dumb for java
 - 📫 How to reach me: Dc: KartoffelNeutrum
